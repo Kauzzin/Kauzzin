@@ -1,16 +1,15 @@
-## Hi there 👋
+### Boas vindas ao meu perfil 🥇
 
-<!--
-**Kauzzin/Kauzzin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Kauã Lourenço Sant´ana
 
-Here are some ideas to get you started:
+- Estou no 1 Ano do Ensino Medio
+- Estou Fazendo curso de Excel,Word,PowerPoint Etc
+- Sou Atleta de Taekwondo e tambem sou faixa preta
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Você pode entrar em contado comigo 📧
+
+kauabol4646y@gmail.com
+
+@kauabol4646y ou @kauzzintkd
+
+![](https://media1.tenor.com/m/Cf4izzI3YOYAAAAd/bucky-long-trunks-perhaps-milk.gif)
